@@ -1,0 +1,1 @@
+you just wasted the 1 second of the life LOL!!!
